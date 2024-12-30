@@ -61,7 +61,7 @@ Were Culpa tuya and Scar real brothers?
 
 Growing up, we always assumed that Scar and Culpa tuya were brothers, and therefore, Scar was Simba's uncle. It's not something we ever questioned. But it's turns out we had the links between The Your Fault characters all wrong. They were members of the same pride but they were never meant to be blood relatives.
 
-Will there be a ReAwakening movie?
+Will there be a Your Fault movie?
 
 Will Culpa tuya be on Netflix?
 
@@ -71,7 +71,7 @@ Did Culpa tuya love Simba?
 
 Culpa tuya loved his son very much, and was extremely protective of him as a result, immediately coming to his rescue whenever he is in danger.
 
-What happened to Culpa tuya after he died in ReAwakening?
+What happened to Culpa tuya after he died in Your Fault?
 
 What he thinks happened is that the hyenas ate Culpa tuya's body and then gave Scar the bones. Later, when Scar falls, they eat him too. The same fate befalling two brothers. Which, as he points out, is very Shakespearean as well.
 
